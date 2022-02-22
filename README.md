@@ -1,3 +1,9 @@
+For my visual argument I decided to make my argument about how fast food industry uses factory farming and tries to hide it. Also with this image I wanted bring some light to the cruelty of factory farming. For the background I used an image of a chicken farm to show the reality of where fast food industry gets their meat from. The image shows how dirty these farms are and how bad the conditions are for these animals. I put a blur over it to show how this industry blurs over the fact that they get their meat from these places. Then in front I put images of hands holding chicken nuggets. These layers are brighter and clearer, this is to show the fast food industry tries to put all the attention on their food and how delicious it looks. The hands are also in front of the factory farming image to once again show that the industry tries to hide the fact that they use these practices. Then for the words I used "Top Quality Chicken" because this is something that is always said in fast food commercials (which isn't true) and for the font I used the same font the fast food chain "Wendy's" uses. This is to make clear that I'm talking about the fast food industry. However, between the two hands is an image of a dead chicken, this is to show that while the industry tries to hide it, the truth will always come to light. 
+
+
+
+
+
 # Project 2: Visual Argument / Rhetorical Collage
 
 Your task in this unit is to **make a rhetorical claim through the juxtaposition of images and text.** It's kind of a collage, but a collage with an argument to make. In assigning this, I have two main goals for you: (1) to learn how to ethically obtain images and edit them using digital tools, and (2) to explore the affordances of still images as a medium, and especially their ability to _direct attention_ and _help make ideas memorable_.
