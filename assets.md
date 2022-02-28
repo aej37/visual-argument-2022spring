@@ -9,7 +9,7 @@ Hand holding chicken nugget| Source from CC: Free to use under the Unsplash Lice
 Black background | Source from CC: Free to use under the Unsplash License: "Black textile on brown wooden table" by Klim Musalimov https://unsplash.com/photos/rDMacl1FDjw
 Font | Source from CC: Free commercial font from FontSpace: "Wendyville" by sharkshock https://www.fontspace.com/category/wendys
 Slogan | Self-Made 
-Action Statement | Self - Made
+Action Statement | Self-Made
 <!--EndFragment-->
 </body>
 </html>
